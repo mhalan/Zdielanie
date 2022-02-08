@@ -1,0 +1,2 @@
+# Zdielanie
+Na zdielanie suborov
